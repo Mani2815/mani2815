@@ -1,8 +1,3 @@
-**ASSESSING THE COLLEGE CAMPUS EXPERIENCE**
-
-
-Description
-
 
 
 
